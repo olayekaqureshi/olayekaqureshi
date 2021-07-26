@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Olayeka Qureshi
+- 🌱 I’m currently pursuing Master of Computer Application
